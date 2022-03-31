@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @smelliottsmith
+- 👀 I’m interested in shit
+- 🌱 I’m currently learning programming in general idfk
+- 📫 https://smelliottsmith.crd.co/
